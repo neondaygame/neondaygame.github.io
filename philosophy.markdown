@@ -47,8 +47,8 @@ Re-purpose that energy and attention towards the women in real life.
 
 Much of game is not in my control. Accept it. Embrace it. Don't force things.
 
-The game **IS NOT** lost if the woman flakes or doesn't give her number or doesn't fuck.
+The game is not lost if the woman flakes or doesn't give her number or doesn't fuck.
 
-The game **IS** lost when my inner peace is lost, limiting my ability to express myself fully and honestly.
+The game is lost when my inner peace is lost, limiting my ability to express myself fully and honestly.
 
 Keep this inner peace in check. Remind myself everyday to be grateful that beautiful women exist to make life an adventure worth living.
