@@ -5,44 +5,50 @@ permalink: /philosophy/
 sidebar_link: true
 ---
 
-My daygame journey has had its share of ups and downs. Most importantly, daygame has taught me a lot about myself and the world, things I'm not sure I could've learned any other way.
+My daygame journey has had its share of ups and downs. Most importantly, it has taught me a lot about myself and the world, things I'm not sure I could've learned any other way.
 
-Now convinced that daygame will be a lifelong pursuit, I am starting this journal to document the remainder of my journey. It is first and foremost for myself, to help me gather my thoughts on game and speak to myself.
+Now convinced that daygame will be a lifelong pursuit, I want to chronicle the remainder of my journey. This journal is primarily for myself, to help organize  my thoughts on game.
 
-I want to start by summarizing my seduction philosophy.
+I want to start by summarizing my present seduction philosophy.
 
 ---
 
-## Physically interact with at least one cute woman every day.
+## Game Daily
 
 The physical interaction is 90% of the game. Everything else is 10%. Manage my attention accordingly. 
 
 Don't over-attend to fashion, photos, looks, texting, etc. Focus primarily on the man to woman, face to face, interaction.
 
-Do this **every day**. Consistency is much more powerful than volume. 
+Interact with at least one beautiful woman **every day**. Consistency is much more powerful than volume.
 
 ---
 
-## Trust the natural progress.
+## Trust Nature
 
 Trust myself to learn what works and what doesn't from my daily interactions with women.
 
-Don't bother with shortcuts, tricks, or other people's experiences. Don’t read, talk, or ask about game tactics.
+Don't bother with shortcuts, tricks, or other people's techniques. Don’t read, talk, or invest energy in game literature or theory.
 
 Don't force a model prematurely, especially one based on other people's experiences, which can be very different.
 
-Natural progress will take time. So have patience and make the daily interactions fun for myself. Since fucking is the highest level of fun, trust myself to move towards it naturally.
+Natural progress will take time. Have patience and make the daily interactions fun and positive.
+
+A consensual primal fuck is the highest level of fun. Trust that I'll move towards it naturally.
 
 ---
 
-## Don't masturbate or watch porn.
+## No Porn
 
-Re-purpose that energy towards the women I am seducing.
+Re-purpose that energy and attention towards the women in real life.
 
 ---
 
-## No matter what, remind myself everyday to be grateful that beautiful women exist.
+## Be Grateful
 
-Much of game is not in my control. Therefore, the game is **NOT** lost if the woman flakes or doesn't give her number or doesn't fuck. The game **IS** lost when my inner peace is lost, limiting my ability to express myself fully and honestly. 
+Much of game is not in my control. Accept it. Embrace it.
 
-Keep this inner peace in check by being grateful that women, as capricious as they may be, make everyday an adventure worth living.
+The game **IS NOT** lost if the woman flakes or doesn't give her number or doesn't fuck.
+
+The game **IS** lost when my inner peace is lost, limiting my ability to express myself fully and honestly. 
+
+Keep this inner peace in check. Remind myself everyday that beautiful women, capricious by nature, exist to make life an adventure worth living.
