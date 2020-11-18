@@ -15,11 +15,11 @@ I want to start by summarizing my present seduction philosophy.
 
 ## Game Daily
 
-The physical interaction is 90% of the game. Everything else is 10%. Manage my attention accordingly. 
+Physically interact with at least one new beautiful woman every day. Consistency is much more powerful than volume.
 
-Don't over-attend to fashion, photos, looks, texting, etc. Focus primarily on the man to woman, face to face, interaction.
+Focus on the physical interaction, which is 90% of the game. Everything else is 10%. 
 
-Interact with at least one beautiful woman **every day**. Consistency is much more powerful than volume.
+Manage my attention accordingly. Don't over-attend to fashion, social media, looks, texting, etc. 
 
 ---
 
@@ -33,7 +33,7 @@ Don't force a model prematurely, especially one based on other people's experien
 
 Natural progress will take time. Have patience and make the daily interactions fun and positive.
 
-A consensual primal fuck is the highest level of fun. Trust that I'll move towards it naturally.
+A consensual primal fuck is the highest level of fun. Trust that I'll figure out how to get there naturally.
 
 ---
 
