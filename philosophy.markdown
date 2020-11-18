@@ -9,7 +9,7 @@ My daygame journey has had its share of ups and downs. Most importantly, daygame
 
 Now convinced that daygame will be a lifelong pursuit, I am starting this journal to document the remainder of my journey. It is first and foremost for myself, to help me gather my thoughts on game and speak to myself.
 
-I want to start my summarizing my seduction philosophy.
+I want to start by summarizing my seduction philosophy.
 
 ---
 
