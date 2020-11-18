@@ -17,9 +17,9 @@ I want to start by summarizing my present seduction philosophy.
 
 Physically interact with at least one new beautiful woman every day. Consistency is much more powerful than volume.
 
-Focus on the physical interaction, which is 90% of the game. Everything else is 10%. 
+Focus on the physical face-to-face interaction, which is 90% of the game. Everything else is 10%. 
 
-Manage my attention accordingly. Don't over-attend to fashion, social media, looks, texting, etc. 
+Manage my attention accordingly. Don't over-attend to fashion, social media, looks, texting, etc.
 
 ---
 
@@ -27,13 +27,13 @@ Manage my attention accordingly. Don't over-attend to fashion, social media, loo
 
 Trust myself to learn what works and what doesn't from my daily interactions with women.
 
-Don't bother with shortcuts, tricks, or other people's techniques. Don’t read, talk, or invest energy in game literature or theory.
+Don't bother with shortcuts, gimmicks, or other people's techniques. Don't read, talk, or invest energy in game literature or theory.
 
-Don't force a model prematurely, especially one based on other people's experiences, which can be very different.
+Don't place much weight on other people's experiences. Figure things out for myself.
 
-Natural progress will take time. Have patience and make the daily interactions fun and positive.
+Let natural progress take its course. Have patience and make the daily interactions fun and positive.
 
-A consensual primal fuck is the highest level of fun. Trust that I'll figure out how to get there naturally.
+A consensual primal fuck is the highest level of fun. Trust that I'll figure out how to get there with time.
 
 ---
 
@@ -45,10 +45,10 @@ Re-purpose that energy and attention towards the women in real life.
 
 ## Be Grateful
 
-Much of game is not in my control. Accept it. Embrace it.
+Much of game is not in my control. Accept it. Embrace it. Don't force things.
 
 The game **IS NOT** lost if the woman flakes or doesn't give her number or doesn't fuck.
 
-The game **IS** lost when my inner peace is lost, limiting my ability to express myself fully and honestly. 
+The game **IS** lost when my inner peace is lost, limiting my ability to express myself fully and honestly.
 
-Keep this inner peace in check. Remind myself everyday that beautiful women, capricious by nature, exist to make life an adventure worth living.
+Keep this inner peace in check. Remind myself everyday to be grateful that beautiful women exist to make life an adventure worth living.
