@@ -15,7 +15,7 @@ I want to start by summarizing my present seduction philosophy.
 
 ## Game Daily
 
-Physically interact with at least one new beautiful woman every day. Consistency is much more powerful than volume.
+Physically interact with at least one new beautiful woman every day. Consistency is much more powerful than volume. Daily interactions also create a feeling of abundance.
 
 Focus on the physical face-to-face interaction, which is 90% of the game. Everything else is 10%. 
 
