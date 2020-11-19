@@ -1,0 +1,9 @@
+#sidebar img {
+  border-radius: 50%;
+  margin: 0 auto 16px;
+  width: 180px;
+
+  @media (min-width: $large-breakpoint) {
+    margin-bottom: 0px;
+  }
+}

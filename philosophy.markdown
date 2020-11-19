@@ -31,7 +31,7 @@ Don't bother with shortcuts, gimmicks, or other people's techniques. Don't read,
 
 Don't place much weight on other people's experiences. Figure things out for myself.
 
-Let natural progress take its course. Have patience and make the daily interactions fun and positive.
+Let natural progress take its course. Have patience and make the daily interactions enjoyable and positive.
 
 A consensual primal fuck is the highest level of fun. Trust that I'll figure out how to get there with time.
 
@@ -47,7 +47,7 @@ Re-purpose that energy and attention towards the women in real life.
 
 Much of game is not in my control. Accept it. Embrace it. Don't force things.
 
-The game is not lost if the woman flakes or doesn't give her number or doesn't fuck.
+The game is not lost if the woman flakes or doesn't give her number or doesn't text back or doesn't fuck.
 
 The game is lost when my inner peace is lost, limiting my ability to express myself fully and honestly.
 
