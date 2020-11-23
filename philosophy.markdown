@@ -17,9 +17,9 @@ I want to start by summarizing my present seduction philosophy.
 
 Physically interact with at least one new beautiful woman every day. Consistency is much more powerful than volume. Daily interactions also create a feeling of abundance.
 
-Focus on the physical face-to-face interaction, which is 90% of the game. Everything else is 10%. 
+Focus on the physical face-to-face interaction, which is 90% of the game. 
 
-Manage my attention accordingly. Don't over-attend to fashion, social media, looks, texting, etc.
+Don't over-focus on fashion, social media, looks, texting, etc. They are 10% of the game and not where the _main_ difference is made.
 
 ---
 
@@ -43,7 +43,7 @@ Re-purpose that energy and attention towards the women in real life.
 
 ---
 
-## Be Grateful
+## Be Mindful
 
 Much of game is not in my control. Accept it. Embrace it. Don't force things.
 
