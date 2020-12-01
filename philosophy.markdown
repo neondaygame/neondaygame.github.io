@@ -23,7 +23,7 @@ Don't over-focus on fashion, social media, looks, texting, etc. They are 10% of 
 
 ---
 
-## Trust Nature
+## Trust Nature and Personal Experience
 
 Trust myself to learn what works and what doesn't from my daily interactions with women.
 
@@ -37,13 +37,13 @@ A consensual primal fuck is the highest level of fun. Trust that I'll figure out
 
 ---
 
-## No Porn
+## No Porn / Dating Apps
 
 Re-purpose that energy and attention towards the women in real life.
 
 ---
 
-## Be Mindful
+## Be Mindful and Grateful
 
 Much of game is not in my control. Accept it. Embrace it. Don't force things.
 
