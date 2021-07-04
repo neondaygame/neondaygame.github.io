@@ -3,9 +3,6 @@ layout: page
 title: Philosophy
 permalink: /philosophy/
 sidebar_link: true
-back_page:
-  url: /
-  title: Back
 ---
 
 My daygame journey has had its share of ups and downs. Most importantly, it has taught me a lot about myself and the world, things I'm not sure I could've learned any other way.
