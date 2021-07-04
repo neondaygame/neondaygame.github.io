@@ -26,7 +26,6 @@ url: https://neondaygame.com # the base hostname & protocol for your site, e.g. 
 twitter_username: ""
 github_username: ""
 paginate: 5
-back_page: https://neondaygame.com
 
 # Build settings
 theme: jekyll-theme-hydeout
