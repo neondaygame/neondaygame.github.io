@@ -2,6 +2,7 @@
 layout: page
 title: Philosophy
 permalink: /philosophy/
+back_page: /
 sidebar_link: true
 ---
 
